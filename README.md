@@ -17,4 +17,4 @@ After buying contact for tutorial how to use it
 
 Www. Shoppy. gg/@KenzabyteBot
 
-Telegram @rwEkoi
+Telegram @nftsenderdev
